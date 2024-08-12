@@ -1,16 +1,17 @@
-## Hi there 👋
+## SEJA BEM VINDO👌
 
-<!--
-**RyanOliveiraSKR/RyanOliveiraSKR** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+-Eu me chamo RYAN
 
-Here are some ideas to get you started:
+-Tenho 16 anos
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+-Quero estudar biologia, engenharia mecanica🔬🔧
+
+-To Cursando o Ensino Medio👨🏼‍🎓
+
+-Tenho mais habilidades em tarefas manuais
+
+-gosto de relaxar jogando, assistindo e fazendo os meus hobbies
+
+-meu sonho é ter um trabanho de respeito, uma familia, e ter uma casa enorme com muitos carros e um gato👍
+
+![](https://media.tenor.com/KMI0CEqtBX4AAAAi/rimuru-pixelart.gif)
