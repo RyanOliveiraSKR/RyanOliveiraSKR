@@ -4,7 +4,7 @@
 
 -Tenho 16 anos
 
--Quero estudar biologia, engenharia mecanica🔬🔧
+-Quero estudar biologia e engenharia mecanica🔬🔧
 
 -To Cursando o Ensino Medio👨🏼‍🎓
 
